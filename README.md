@@ -1,0 +1,1 @@
+# zad1do6itabela
